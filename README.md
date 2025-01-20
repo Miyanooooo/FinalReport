@@ -1,1 +1,1 @@
-Power Supply Intermediate Report of mentorgroup B2.
+Intermediate Power Supply Reports of mentor group B2.
